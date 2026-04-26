@@ -21,13 +21,9 @@ Kolekta adalah doa singkat yang biasanya dipanjatkan dalam liturgi Kristen. Situ
 
 #### Doa Pagi Hari (Luther)
 
-Dalam nama Bapa dan Putra dan Roh Kudus. Amin.
-
 Aku mengucap syukur kepada-Mu, Bapa Surgawi, dengan perantaraan Yesus Kristus, Putra-Mu yang terkasih, karena Engkau telah menjagaku malam ini dari segala marabahaya. Aku berdoa, kiranya Engkau juga menjagaku pada hari ini dari dosa dan segala perbuatan jahat, supaya segala perbuatan dan hidupku boleh menyenangkan hati-Mu. Ke dalam tanganMu kuserahkan diriku, tubuhku dan jiwaku, beserta segala milikku. Kiranya malaikat-Mu yang kudus menyertaiku, supaya kuasa jahat tidak berkuasa atas diriku. Amin.
 
 #### Doa Malam Hari (Luther)
-
-Dalam nama Bapa dan Putra dan Roh Kudus. Amin.
 
 Aku mengucap syukur kepada-Mu, Bapa Surgawi, dengan perantaraan Yesus Kristus, Putra-Mu yang terkasih, karena Engkau dengan kasih telah menjagaku pada hari ini. Aku berdoa, kiranya Engkau mengampuni segala dosaku di mana aku telah berbuat salah, dan dengan kasih menjaga pada malam ini. Ke dalam tangan-Mu kueserahkan diriku, tubuhku dan jiwaku, beserta segala milikku. Kiranya malaikat-Mu yang kudus menyertaiku, supaya kuasa jahat tidak berkuasa atas diriku. Amin.
 
@@ -35,7 +31,7 @@ Aku mengucap syukur kepada-Mu, Bapa Surgawi, dengan perantaraan Yesus Kristus, P
 
 #### Doa untuk Gereja (Minggu)
 
-Ya Allah Yang Mahakuasa, kami mohon kepada-Mu, karuniakanlah kepada Gereja-Mu Roh Kudus-Mu dan hikmat yang turun dari pada-Mu, supaya Firman-Mu, sebagaimana seharusnya, tidak terikat, melainkan bebas diberitakan bagi sukacita dan pembangunan umat-Mu yang kudus, supaya dalam iman yang kami dapat melayani Engkau dan tetap setia dalam pengakuan akan Nama-Mu sampai akhir; dalam nama Yesus Kristus, Tuhan kami. Amin.
+Ya Allah Yang Mahakuasa, kami mohon kepada-Mu, karuniakanlah kepada Gereja-Mu Roh Kudus-Mu dan hikmat yang turun dari pada-Mu, supaya Firman-Mu, sebagaimana semestinya, tidak terikat, melainkan bebas diberitakan bagi sukacita dan kebangunan umat-Mu yang kudus, supaya dalam iman yang teguh kami dapat melayani Engkau dan tetap setia dalam pengakuan akan Nama-Mu sampai akhir; dalam nama Yesus Kristus, Tuhan kami. Amin.
 
 #### Doa untuk ibu (Senin)
 
