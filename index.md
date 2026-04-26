@@ -15,7 +15,7 @@ Kolekta adalah doa singkat yang biasanya dipanjatkan dalam liturgi Kristen. Situ
     - [Doa untuk orang sakit (Jumat)](#doa-untuk-orang-sakit-jumat)
     - [Doa untuk pemerintah sipil (Sabtu)](#doa-untuk-pemerintah-sipil-sabtu)
 
-3. [Doa untuk setiap tahun](#doa-untuk-setiap-tahun)
+3. [Doa untuk setiap tahun](/collect_of_the_day.md)
  
 ### Doa untuk setiap hari
 
@@ -57,6 +57,4 @@ Ya Allah Yang Maha Kuasa, Allah yang Kekal, yang membawa keselamatan abadi bagi 
 
 Ya Bapa yang penuh belas kasihan di surga, yang menggenggam di tangan-Mu segala kuasa manusia, dan yang telah menetapkan penguasa untuk menghukum orang-orang jahat dan mengupah mereka yang berbuat baik, serta sumber segala pemerintahan dan kekuasaan di dunia: Kami dengan rendah hati memohon kepada-Mu, peliharalah dengan penuh kasih hamba-hamba-Mu, Presiden Republik Indonesia, gubernur daerah kami, para penegak hukum dan pejabat kami, serta semua penguasa di bumi. Kiranya semua yang memegang pedang, sebagai hamba-hamba-Mu, menggunakannya sesuai dengan perintah-Mu. Terangilah dan lindungilah mereka dengan nama-Mu, ya Allah. Berikanlah mereka hikmat dan pengertian, agar di bawah pemerintahan mereka yang damai, umat-Mu dapat dijaga dan dibimbing dalam kebenaran, ketenangan, dan persatuan. Lindungilah dan panjangkanlah umur mereka, ya Allah sumber keselamatan kami, agar kami, bersama mereka, dapat memuji nama-Mu; dalam nama Yesus Kristus, Tuhan kami. Amin.
 
-### Doa untuk setiap tahun
-
-~dalam pengerjaan~
+### [Doa untuk setiap tahun](/collect_of_the_day.md)
