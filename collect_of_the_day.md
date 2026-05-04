@@ -4,7 +4,21 @@ Doa untuk setiap tahun dipanjatkan sesuai hari perayaan gerejawi atau minggu dal
 
 ### Daftar Isi
 
-1. [Minggu Sengsara](#minggu-sengsara)
+1. [Minggu-minggu Prapaskah/Lent](#minggu-minggu-prapaskahlent)
+
+    - [Rabu Abu](#rabu-abu)
+
+    - [Minggu pertama Lent](#minggu-pertama-lent)
+    
+    - [Minggu ke-2 Lent](#minggu-ke-2-lent)
+
+    - [Minggu ke-3 Lent](#minggu-ke-3-lent)
+
+    - [Minggu ke-4 Lent](#minggu-ke-4-lent)
+
+    - [Minggu ke-5 Lent](#minggu-ke-5-lent)
+
+    - [Minggu ke-6 Lent (Palma)](#minggu-ke-6-lent-palma)
 
     - [Senin pada Minggu Sengsara](#senin-pada-minggu-sengsara)
 
@@ -32,7 +46,43 @@ Doa untuk setiap tahun dipanjatkan sesuai hari perayaan gerejawi atau minggu dal
     
     - [Minggu ke-5 setelah Paskah](#minggu-ke-5-setelah-paskah)
 
-### Minggu Sengsara
+    - [Kenaikan Tuhan Yesus](#kenaikan-tuhan-yesus)
+
+    - [Minggu ke-6 setelah Paskah](#minggu-ke-6-setelah-paskah)
+
+    - [Minggu Pentakosta](#minggu-pentakosta)
+
+    - [Senin setelah Pentakosta](#senin-setelah-pentakosta)
+
+### Minggu-minggu Prapaskah/Lent
+
+#### Rabu Abu
+
+Allah Yang Mahakuasa dan Kekal, yang tidak membenci apa pun yang telah Engkau ciptakan, dan yang mengampuni dosa semua orang yang bertobat: ciptakan dan jadikanlah di dalam kami hati yang baru dan penuh penyesalan, supaya kami yang meratapi dosa-dosa kami dan mengakui keberdosaan kami, boleh memperoleh dari-Mu, ya Allah sumber segala belas kasih, penghapusan dosa dan pengampunan yang sempurna; dalam nama Yesus Kristus, Putra-Mu, Tuhan kami, yang hidup dan berkuasa bersama Engkau dan Roh Kudus, satu Allah, sepanjang segala masa. Amin.
+
+#### Minggu pertama Lent
+
+Ya Tuhan, dengan penuh belas kasih dengarkanlah doa kami, dan ulurkanlah tangan kanan-Mu yang agung untuk melindungi kami dari mereka yang bangkit melawan kami; dalam nama Yesus Kristus, Putra-Mu, Tuhan kami, yang hidup dan berkuasa bersama Engkau dan Roh Kudus, satu Allah, sepanjang segala masa. Amin.
+
+#### Minggu ke-2 Lent
+
+Engkau yang melihat bahwa dalam diri kami sendiri kami tidak mempunyai kekuatan: jagalah kami, baik lahir maupun batin; supaya kami dilindungi dari segala kesukaran yang dapat menimpa tubuh, dan dari segala pikiran jahat yang dapat menyerang serta melukai jiwa; dalam nama Yesus Kristus, Putra-Mu, Tuhan kami, yang hidup dan berkuasa bersama Engkau dan Roh Kudus, satu Allah, sepanjang segala masa. Amin.
+
+#### Minggu ke-3 Lent
+
+Kami memohon kepada-Mu, ya Allah Yang Mahakuasa, pandanglah kerinduan yang tulus dari hamba-hamba-Mu yang terbatas, dan ulurkanlah tangan kanan keagungan-Mu untuk menjadi perlindungan kami terhadap segala musuh kami; dalam nama Yesus Kristus, Putra-Mu, Tuhan kami, yang hidup dan berkuasa bersama Engkau dan Roh Kudus, satu Allah, sepanjang segala masa. Amin.
+
+#### Minggu ke-4 Lent
+
+Anugerahkanlah, kami mohon kepada-Mu, ya Allah Yang Mahakuasa, agar kami, yang oleh perbuatan-perbuatan jahat kami memang layak menerima hukuman, oleh penghiburan kasih karunia-Mu dengan penuh belas kasih boleh diringankan; dalam nama Yesus Kristus, Putra-Mu, Tuhan kami, yang hidup dan berkuasa bersama Engkau dan Roh Kudus, satu Allah, sepanjang segala masa. Amin.
+
+#### Minggu ke-5 Lent
+
+Kami mohon kepada-Mu, ya Allah Yang Mahakuasa, pandanglah umat-Mu dengan penuh belas kasihan, supaya oleh kebaikan-Mu yang besar mereka senantiasa dibimbing dan dipelihara, baik tubuh maupun jiwa; dalam nama Yesus Kristus, Putra-Mu, Tuhan kami, yang hidup dan berkuasa bersama Engkau dan Roh Kudus, satu Allah, sepanjang segala masa. Amin.
+
+#### Minggu ke-6 Lent (Palma)
+
+Allah Yang Mahakuasa dan Kekal, yang telah mengutus Putra-Mu, Juruselamat kami Yesus Kristus, yang menjadi manusia dan menderita kematian di kayu salib, supaya seluruh umat manusia mengikuti teladan kerendahan hati-Nya yang agung: anugerahkanlah dengan penuh belas kasih, agar kami boleh mengikuti teladan kesabaran-Nya, dan juga mengambil bagian dalam kebangkitan-Nya; dalam nama Yesus Kristus, Putra-Mu, Tuhan kami, yang hidup dan berkuasa bersama Engkau dan Roh Kudus, satu Allah, sepanjang segala masa. Amin.
 
 #### Senin pada Minggu Sengsara
 
@@ -83,3 +133,19 @@ Ya Allah, yang menjadikan hati orang-orang beriman sehati dan sepikir: Karuniaka
 #### Minggu ke-5 setelah Paskah
 
 Ya Allah, sumber segala yang baik: Karuniakanlah kepada kami, hamba-hamba-Mu yang terbatas, agar oleh ilham kudus-Mu kami dapat memikirkan hal-hal yang benar, dan oleh tuntunan belas kasihan-Mu kami dapat melakukannya; dalam nama Yesus Kristus, Putra-Mu, Tuhan kami, yang hidup dan memerintah bersama Engkau dan Roh Kudus, satu Allah untuk selama-lamanya. Amin.
+
+#### Kenaikan Tuhan Yesus
+
+Anugerahkanlah, kami mohon kepada-Mu, ya Allah Yang Mahakuasa, agar sebagaimana kami percaya bahwa Putra-Mu yang tunggal, Tuhan kami Yesus Kristus, telah naik ke surga, demikian juga hati dan pikiran kami boleh terangkat ke sana, dan bersama-Nya senantiasa tinggal; dalam nama Yesus Kristus, Putra-Mu, Tuhan kami, yang hidup dan berkuasa bersama Engkau dan Roh Kudus, satu Allah, sepanjang segala masa. Amin.
+
+#### Minggu ke-6 setelah Paskah
+
+Allah Yang Mahakuasa dan Kekal, jadikanlah kami senantiasa memiliki kehendak yang setia kepada-Mu, dan melayani-Mu dengan hati yang murni; dalam nama Yesus Kristus, Putra-Mu, Tuhan kami, yang hidup dan berkuasa bersama Engkau dan Roh Kudus, satu Allah, sepanjang segala masa. Amin.
+
+#### Minggu Pentakosta
+
+Ya Allah, yang telah mengajar hati umat-Mu yang setia dengan mengutus kepada mereka terang Roh Kudus-Mu: anugerahkanlah kepada kami, oleh Roh yang sama, kemampuan untuk memiliki pertimbangan yang benar dalam segala hal, dan senantiasa bersukacita dalam penghiburan-Nya yang kudus; dalam nama Yesus Kristus, Putra-Mu, Tuhan kami, yang hidup dan berkuasa bersama Engkau dan Roh Kudus, satu Allah, sepanjang segala masa. Amin.
+
+#### Senin setelah Pentakosta
+
+Ya Allah, yang telah memberikan Roh Kudus-Mu kepada para Rasul-Mu: anugerahkanlah kepada umat-Mu penggenapan dari permohonan-permohonan mereka, sehingga kepada kami yang telah Engkau berikan iman, Engkau juga berkenan menganugerahkan damai sejahtera; dalam nama Yesus Kristus, Putra-Mu, Tuhan kami, yang hidup dan berkuasa bersama Engkau dan Roh Kudus, satu Allah, sepanjang segala masa. Amin.
