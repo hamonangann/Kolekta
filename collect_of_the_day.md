@@ -54,6 +54,20 @@ Doa untuk setiap tahun dipanjatkan sesuai hari perayaan gerejawi atau minggu dal
 
     - [Senin setelah Pentakosta](#senin-setelah-pentakosta)
 
+4. [Minggu Trinitatis](#minggu-trinitatis)
+
+5. [Minggu setelah Trinitatis](#minggu-setelah-trinitatis)
+
+    - [Minggu pertama setelah Trinitatis](#minggu-pertama-setelah-trinitatis)
+
+    - [Minggu ke-2 setelah Trinitatis](#minggu-ke-2-setelah-trinitatis)
+
+    - [Minggu ke-3 setelah Trinitatis](#minggu-ke-3-setelah-trinitatis)
+
+    - [Minggu ke-4 setelah Trinitatis](#minggu-ke-4-setelah-trinitatis)
+    
+    - [Minggu ke-5 setelah Trinitatis](#minggu-ke-5-setelah-trinitatis)
+
 ### Minggu-minggu Prapaskah/Lent
 
 #### Rabu Abu
@@ -149,3 +163,29 @@ Ya Allah, yang telah mengajar hati umat-Mu yang setia dengan mengutus kepada mer
 #### Senin setelah Pentakosta
 
 Ya Allah, yang telah memberikan Roh Kudus-Mu kepada para Rasul-Mu: anugerahkanlah kepada umat-Mu penggenapan dari permohonan-permohonan mereka, sehingga kepada kami yang telah Engkau berikan iman, Engkau juga berkenan menganugerahkan damai sejahtera; dalam nama Yesus Kristus, Putra-Mu, Tuhan kami, yang hidup dan berkuasa bersama Engkau dan Roh Kudus, satu Allah, sepanjang segala masa. Amin.
+
+### Minggu Trinitatis
+
+Allah Yang Mahakuasa dan Kekal, yang telah memberikan kepada kami, hamba-hamba-Mu, anugerah, melalui pengakuan iman yang benar, untuk mengakui kemuliaan Tritunggal yang Kekal, dan dalam kuasa Keagungan Ilahi untuk menyembah-Mu: kami memohon kepada-Mu, kiranya Engkau meneguhkan kami dalam iman ini, dan senantiasa melindungi kami dari segala kesengsaraan; dalam nama Yesus Kristus, Anak-Mu, Tuhan kami, yang hidup dan memerintah, Allah yang esa sampai selama-lamanya. Amin.
+
+### Minggu setelah Trinitatis
+
+#### Minggu pertama setelah Trinitatis
+
+Ya Allah, kekuatan bagi semua orang yang menaruh kepercayaan kepada-Mu: berkenanlah menerima doa-doa kami dengan penuh kemurahan. Dan karena melalui kelemahan kodrat kami yang fana kami tidak dapat melakukan sesuatu yang baik tanpa Engkau, karuniakanlah kepada kami pertolongan kasih karunia-Mu, supaya dalam menaati perintah-perintah-Mu kami boleh berkenan kepada-Mu, baik dalam kehendak maupun perbuatan: dalam nama Yesus Kristus, Anak-Mu, Tuhan kami, yang hidup dan memerintah bersama-Mu dan dengan Roh Kudus, satu Allah yang kekal sampai selama-lamanya. Amin.
+
+#### Minggu ke-2 setelah Trinitatis
+
+Ya Tuhan, yang tidak pernah gagal menolong dan memerintah mereka yang Engkau tuntun dalam takut dan kasih yang teguh kepada-Mu: jadikanlah kami memiliki takut dan kasih yang senantiasa terhadap nama-Mu yang kudus; dalam nama Yesus Kristus, Anak-Mu, Tuhan kami, yang hidup dan memerintah bersama-Mu dan dengan Roh Kudus, satu Allah yang kekal sampai selama-lamanya. Amin.
+
+#### Minggu ke-3 setelah Trinitatis
+
+Ya Allah, Pelindung semua orang yang percaya kepada-Mu, tanpa Engkau tidak ada yang kuat, tidak ada yang kudus: tambahkanlah dan limpahkanlah kepada kami belas kasihan-Mu, supaya Engkau menjadi Raja dan Penuntun kami, kami dapat menjalani hal-hal yang sementara ini sedemikian rupa sehingga pada akhirnya kami tidak kehilangan hal-hal yang kekal: dalam nama Yesus Kristus, Anak-Mu, Tuhan kami, yang hidup dan memerintah bersama-Mu dan dengan Roh Kudus, satu Allah yang kekal sampai selama-lamanya. Amin.
+
+#### Minggu ke-4 setelah Trinitatis
+
+Ya Tuhan, kami memohon kepada-Mu, anugerahkanlah kiranya agar perjalanan dunia ini diatur dengan damai oleh pimpinan-Mu, sehingga Gereja-Mu dapat dengan sukacita melayani Engkau dalam khidmat; dalam nama Yesus Kristus, Anak-Mu, Tuhan kami, yang hidup dan memerintah bersama-Mu dan dengan Roh Kudus, satu Allah yang kekal sampai selama-lamanya. Amin.
+
+#### Minggu ke-5 setelah Trinitatis
+
+Ya Allah, yang telah menyediakan bagi mereka yang mengasihi-Mu hal-hal yang baik yang melampaui pengertian manusia: curahkanlah ke dalam hati kami kasih yang demikian kepada-Mu, sehingga kami, dengan mengasihi Engkau di atas segala sesuatu, boleh memperoleh janji-janji-Mu yang melampaui segala yang dapat kami harapkan; dalam nama Yesus Kristus, Anak-Mu, Tuhan kami, yang hidup dan memerintah bersama-Mu dan dengan Roh Kudus, satu Allah yang kekal sampai selama-lamanya. Amin.
