@@ -68,6 +68,17 @@ Doa untuk setiap tahun dipanjatkan sesuai hari perayaan gerejawi atau minggu dal
     
     - [Minggu ke-5 setelah Trinitatis](#minggu-ke-5-setelah-trinitatis)
 
+    - [Minggu ke-6 setelah Trinitatis](#minggu-ke-6-setelah-trinitatis)
+
+    - [Minggu ke-7 setelah Trinitatis](#minggu-ke-7-setelah-trinitatis)
+
+    - [Minggu ke-8 setelah Trinitatis](#minggu-ke-8-setelah-trinitatis)
+
+    - [Minggu ke-9 setelah Trinitatis](#minggu-ke-9-setelah-trinitatis)
+
+    - [Minggu ke-10 setelah Trinitatis](#minggu-ke-10-setelah-trinitatis)
+
+
 ### Minggu-minggu Prapaskah/Lent
 
 #### Rabu Abu
@@ -189,3 +200,24 @@ Ya Tuhan, kami memohon kepada-Mu, anugerahkanlah kiranya agar perjalanan dunia i
 #### Minggu ke-5 setelah Trinitatis
 
 Ya Allah, yang telah menyediakan bagi mereka yang mengasihi-Mu hal-hal yang baik yang melampaui pengertian manusia: curahkanlah ke dalam hati kami kasih yang demikian kepada-Mu, sehingga kami, dengan mengasihi Engkau di atas segala sesuatu, boleh memperoleh janji-janji-Mu yang melampaui segala yang dapat kami harapkan; dalam nama Yesus Kristus, Anak-Mu, Tuhan kami, yang hidup dan memerintah bersama-Mu dan dengan Roh Kudus, satu Allah yang kekal sampai selama-lamanya. Amin.
+
+#### Minggu ke-6 setelah Trinitatis
+
+Ya Tuhan yang Maha Kuasa, sumber dan pemberi segala yang baik. Tanamkanlah di dalam hati kami kasih akan nama-Mu, tambahkanlah dalam diri kami iman yang sejati, peliharalah kami dengan segala kebaikan, dan oleh belas kasih-Mu yang besar, teguhkanlah kami tetap hidup di dalamnya; dalam nama Yesus Kristus, Putra-Mu, Tuhan kami, yang hidup dan memerintah bersama Engkau dan Roh Kudus, satu Allah, kini dan sepanjang segala masa. Amin.
+
+
+#### Minggu ke-7 setelah Trinitatis
+
+Ya Allah, yang oleh rencana-Mu yang tidak pernah gagal mengatur segala sesuatu, baik di surga maupun di bumi, dengan rendah hati kami memohon kepada-Mu: jauhkanlah dari kami segala sesuatu yang membahayakan, dan anugerahkanlah kepada kami segala sesuatu yang berguna bagi kehidupan kami; dalam nama Yesus Kristus, Putra-Mu, Tuhan kami, yang hidup dan memerintah bersama Engkau dan Roh Kudus, satu Allah, kini dan sepanjang segala masa. Amin.
+
+#### Minggu ke-8 setelah Trinitatis
+
+Ya Tuhan, kami mohon kepada-Mu, karuniakanlah kepada kami Roh-Mu agar kami senantiasa berpikir dan melakukan apa yang benar, sehingga kami, yang tanpa Engkau tidak dapat melakukan satupun hal baik; dimampukan oleh pertolongan-Mu untuk hidup seturut kehendak-Mu; dalam nama Yesus Kristus, Putra-Mu, Tuhan kami, yang hidup dan memerintah bersama Engkau dan Roh Kudus, satu Allah, kini dan sepanjang segala masa. Amin.
+
+#### Minggu ke-9 setelah Trinitatis
+
+Ya Tuhan, bukalah telinga belas kasihan-Mu terhadap doa hamba-hamba-Mu yang hina ini, dan supaya mereka memperoleh apa yang mereka mohonkan, tuntunlah mereka untuk memohon hanya apa yang berkenan kepada-Mu; dalam nama Yesus Kristus, Putra-Mu, Tuhan kami, yang hidup dan memerintah bersama Engkau dan Roh Kudus, satu Allah, kini dan sepanjang segala masa. Amin.
+
+### Minggu ke-10 setelah Trinitatis
+
+Ya Allah yang menyatakan kuasa melalui belas kasih dan kemurahan-Mu, anugerahkanlah kepada kami rahmat-Mu, supaya kami, yang menempuh jalan perintah-perintah-Mu, memperoleh janji-janji-Mu yang penuh kasih karunia, dan beroleh bagian dalam harta surgawi-Mu; dalam nama Yesus Kristus, Putra-Mu, Tuhan kami, yang hidup dan memerintah bersama Engkau dan Roh Kudus, satu Allah, kini dan sepanjang segala masa. Amin.
